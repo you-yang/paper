@@ -1,3 +1,3 @@
 # paper
 Hi everyone！
-This is a paper from Yu Yang 
+This paper comes from Yu Yang , Qiao lingbo, and Zhao ziran in Tsinghua university
