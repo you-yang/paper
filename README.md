@@ -4,11 +4,8 @@ This paper comes from Yu Yang , Qiao lingbo, and Zhao ziran in Tsinghua universi
 
 
 
-于洋  | Yu Yang
+Contact Information:
 
-清华大学 | Tsinghua University
-
-工程物理系 | Department of  Engineering  Physics
 
 邮箱 | Email yu-y17@mails.tsinghua.edu.cn
 
