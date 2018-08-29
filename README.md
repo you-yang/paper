@@ -10,6 +10,6 @@ This paper comes from Yu Yang , Qiao lingbo, and Zhao ziran in Tsinghua universi
 
 Contact Information:
 
-邮箱 | Email yu-y17@mails.tsinghua.edu.cn
+邮箱 | Email: yu-y17@mails.tsinghua.edu.cn
 
-微信 | WeChat yuyang209219
+微信 | WeChat: yuyang209219
